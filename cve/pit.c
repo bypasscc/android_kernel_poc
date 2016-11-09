@@ -1,0 +1,1 @@
+The manger is abhorrent, actually, is the most hateful to pull out of the pit shit, etc.
